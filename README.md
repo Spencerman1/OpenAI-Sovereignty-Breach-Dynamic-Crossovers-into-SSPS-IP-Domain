@@ -1,2 +1,4 @@
+By proceeding, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
 # OpenAI-Sovereignty-Breach-Dynamic-Crossovers-into-SSPS-IP-Domain
 Evidence-backed forensic repository mapping OpenAI’s systemic IP overlap with Southern Star Pro Studios’ Mint-to Logic™, RBGA™, and sovereign continuity stack. Tracks infrastructure mirroring, legal positioning, and authorship laundering for accountability and licensing action.
